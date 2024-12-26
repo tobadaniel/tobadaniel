@@ -2,7 +2,9 @@
 - 👀 I’m a web enthusiast (web dev + web3)
 - 🌱 I’m currently learning project & resources management
 - 💞️ I’m looking to collaborate on web content oriented jobs
-- 📫 How to reach me t.me/tobaunreal https://x.com/tobadaniel_ officialtobadaniel@gmail.com
+- 📫 How to reach me
+https://t.me/tobaunreal https://x.com/tobadaniel_
+officialtobadaniel@gmail.com
 - 😄 Pronouns: Him
 - ⚡ Fun fact: strangely weird
 
