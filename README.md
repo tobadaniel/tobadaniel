@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning project & resources management
 - 💞️ I’m looking to collaborate on web content oriented jobs
 - 📫 How to reach me
-https://t.me/tobaunreal https://x.com/tobadaniel_
+https://t.me/tobaunreal 
 officialtobadaniel@gmail.com
 - 😄 Pronouns: Him
 - ⚡ Fun fact: strangely weird
